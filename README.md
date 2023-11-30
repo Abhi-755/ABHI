@@ -7,7 +7,7 @@ THIS REPOSITORY MADE BY ABHI_YADAV
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ashutosh-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="ashutosh-pmishra" /> </p>
 
-- 👨‍💻 All friends  my youtube channle : - [https://www.youtube.com/@fb_TRICKER](https://www.facebook.com/profile.php?id=100091655056863)
+- 👨‍💻 All friends  my youtube channle : - [https://www.youtube.com/@fb_TRICKER](https://www.youtube.com/@fb_TRICKER)
 
 - ⚡ Fun fact **I am funny😅**
 
